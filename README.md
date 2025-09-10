@@ -10,6 +10,7 @@
 <p>Ever wonder how the Vital Heating Blanket keeps you so toasty? It uses tiny, flexible micro-coils woven right into the fabric. These elements heat up quickly, spreading warmth across the entire blanket. This smart design means no cold spots, just an even, comforting warmth from edge to edge. It's a precise way to beat the cold.</p>
 <h3>Intelligent Temperature Control</h3>
 <p>You control your perfect warmth with ease. The Vital Heating Blanket features a simple digital display, letting you pick from many temperature settings. Want a little warmth or a lot? You decide. A handy timer lets you set how long the heat stays on, perfect for drifting off to sleep. Plus, an auto-shutoff feature brings peace of mind, turning off the blanket after a set time or if it gets too warm.</p>
+<p><img src="https://offer.buyvitalheatblanket.com/offer/1/app/desktop/images/checkout-now-v3/black-trans2.png" alt="img" /></p>
 <h3>Material Innovation and Comfort</h3>
 <p>This isn't just any blanket; it's made for softness and safety. The plush, breathable fabric feels amazing against your skin. It often comes with certifications like OEKO-TEX, meaning it's free from harmful substances. The blanket is also light enough for comfort but weighty enough to feel secure, wrapping you in gentle warmth without feeling bulky.</p>
 <h2>Benefits of Using a Vital Heating Blanket</h2>
